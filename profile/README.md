@@ -1,4 +1,4 @@
-## Open source agricultural 👋
+## The digital field, open source agricultural 👋
 
 <!--
 
